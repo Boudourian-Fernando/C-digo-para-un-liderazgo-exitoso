@@ -1,1 +1,2 @@
-# C-digo-para-un-liderazgo-exitoso
+# Código-para-un-liderazgo-exitoso
+El coaching ejecutivo es el código fuente de tu crecimiento personal y profesional. A través de herramientas de autoconocimiento, mejoras tu desempeño, optimizas tu comunicación y desarrollas un liderazgo efectivo. Además, aprendes a gestionar tu tiempo y equilibrar tus metas laborales y personales. El resultado es un cambio profundo que impacta tanto en tu carrera como en tu bienestar.
